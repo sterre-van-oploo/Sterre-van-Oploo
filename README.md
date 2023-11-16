@@ -1,8 +1,5 @@
 ### Hi there 👋
 
-<!--
-**sterre-van-oploo/Sterre-van-Oploo** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
 wooooooooooooooh welcome, welcome.
 This is my read me *no wayyyy* This is my first time doing this :O ... idk what to put here after so here some stuff about me ig :p
 
